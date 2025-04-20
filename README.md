@@ -2,16 +2,16 @@
 I love turning ideas into real, fast, and beautiful websites—whether it's your personal brand or your business!
 
 💼 Let’s build something great together:
-🌐 saeedkhaled.com
+🌐 Website: https://saeedkhaled.com
 
 📞 Contact me anytime:
 
-    📱 WhatsApp
+    📱 WhatsApp: https://wa.me/201017393098
 
-    📘 Facebook
+    📘 Facebook: https://facebook.com/s3eedkhaled
 
-    📸 Instagram
+    📸 Instagram: https://instagram.com/s____38e
 
-    📧 Email me
+    📧 Email: saeedkhaled2583@gmail.com
 
 Looking forward to working with you! 🚀

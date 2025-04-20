@@ -2,9 +2,7 @@
 I love turning ideas into real, fast, and beautiful websites—whether it's your personal brand or your business!
 
 
-Let’s build something great together:
-
-Website: https://saeedkhaled.com
+Let’s build something great together: https://saeedkhaled.com
 
 
 Contact me anytime:
